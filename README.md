@@ -1,1 +1,1 @@
-# 2026gsc_YukaInadaaa
+# 卒論公開リンク用
